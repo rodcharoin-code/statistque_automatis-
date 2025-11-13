@@ -1,1 +1,0 @@
-# statistque_automatis-
